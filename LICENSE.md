@@ -1,4 +1,4 @@
-
+ultimate bedwars Script is the best bedwars Script, featuring no cooldown and fly. Safe and powerful for all your needs.
 
 
 
